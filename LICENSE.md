@@ -1,4 +1,4 @@
-
+CapCut for macOS premium Tool: video-trimming & text-animation offers the most advanced CapCut for macOS tool, with video-trimming and text-animation. Ideal for macOS
 
 
 
